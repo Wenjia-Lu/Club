@@ -1,2 +1,2 @@
-# Stuy-TL
-Wenjia &amp; Corina's Club
+# The Stuyvesant Translation Club (Stuy-TL)
+
